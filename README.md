@@ -73,9 +73,9 @@ Travel! Embark on the journey of a lifetime.
 
 Contact Us:
 
-Website: www.amazontravelagency.com
+Website: www.amazontravelagencies.com
 
-Email: bookings@amazontravelagency.com
+Email: booking@amazontravelagency.com
 
 Phone: +254111341988
 Social: @AmazonTravelAgency (on Instagram, Facebook, and Twitter)
